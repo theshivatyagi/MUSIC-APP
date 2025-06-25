@@ -1,6 +1,3 @@
-Here’s a professional and engaging **music app description** you can use for your app on the Play Store, App Store, or promotional material:
-
----
 
 🎵 **\[MUSIC APP] - Your Ultimate Music Experience** 🎶
 Discover. Stream. Enjoy.
